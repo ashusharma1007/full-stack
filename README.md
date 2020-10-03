@@ -5,3 +5,4 @@ your repo is quite good
 my full stack 
 this is my last one
 i have interest in c++
+life is full of struggles,enjoy its beauty. 
