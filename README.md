@@ -5,5 +5,5 @@ your repo is quite good
 my full stack 
 this is my last one
 i have interest in c++
-honesty is the best policy
+honesty is the best policy.
 
