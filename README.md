@@ -8,3 +8,4 @@ i have interest in c++
 honesty is the best policy
 if death come before i prove my blood, i swear i will kill my death.
 life is full of struggles,enjoy its beauty. 
+if life strikes you hard then it wants you to be more stronger.
