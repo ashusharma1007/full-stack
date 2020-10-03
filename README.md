@@ -5,7 +5,7 @@ your repo is quite good
 my full stack 
 this is my last one
 i have interest in c++
-honesty is the best policy.
+honesty is the best policy
 if death come before i prove my blood, i swear i will kill my death.
 
 
